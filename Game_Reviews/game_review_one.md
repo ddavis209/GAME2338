@@ -8,7 +8,7 @@ https://www.yugioh-card.com/en/.
 
 ### Rating
 
-I give this game a 10/10 Donut Rating!!
+I give this game a 8/10 Donut Rating!!
 
 ## Summary
 
